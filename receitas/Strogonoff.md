@@ -17,7 +17,9 @@
 
 
 
-[^Todos os direitos reservados para Adiante MKT Digital]: 
+Obrigado! 
+
+
 
 
 
