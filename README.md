@@ -1,6 +1,6 @@
 # Livro de Receitas :man_cook:
 
-Olá! Bem vindo ao Livro de Receitas. 
+Olá! Seja muito bem vindo(a) ao Livro de Receitas. 
 
 
 
